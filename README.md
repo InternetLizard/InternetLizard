@@ -1,6 +1,6 @@
 - 🤡 Hi, I’m @InternetLizard
 - 🤡 I’m interested in your mother
-- 🤡 I’m currently learning super advanced Minecraft add-ons
+- 🤡 I’m currently learning somewhat advanced Minecraft add-ons
 - 🤡 I’m looking to collaborate on death
 - 🤡 How to reach me YouTube.com/InternetLizard 
 
