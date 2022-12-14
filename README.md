@@ -1,8 +1,8 @@
 - 🤡 Hi, I’m @InternetLizard
-- 🤡 I’m interested in your mother
-- 🤡 I’m currently learning somewhat advanced Minecraft add-ons
+- 🤡 I’m still interested in your mother
+- 🤡 I’m currently learning nothing, but I am working on video game
 - 🤡 I’m looking to collaborate on death
-- 🤡 How to reach me YouTube.com/InternetLizard 
+- 🤡 How to reach me I am on Discor
 
 <!---
 InternetLizard/InternetLizard is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
