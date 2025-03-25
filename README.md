@@ -1,6 +1,6 @@
 - 🤡 Hi, I’m @InternetLizard
 - 🤡 I’m still interested in your mother
-- 🤡 I’m currently learning nothing, but I am working on video game
+- 🤡 I’m currently getting better at GDScript
 - 🤡 I’m looking to collaborate on death
 - 🤡 How to reach me I am on Discor
 
